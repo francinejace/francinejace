@@ -1,5 +1,5 @@
 # 💫 About Me:
-A third-year BS Information Technology student with specialization in Web and Mobile Application who's passionate in creating programs showcasing my skills and expertise in the field.
+A BS Information Technology student in senior year with specialization in Web and Mobile Application who's passionate in creating programs showcasing my skills and expertise in the field.
 
 
 ## 🌐 Socials:
